@@ -1,5 +1,5 @@
 - Hi everyone👋👋 😄
 - I am Karan Raj (CS-IT Undergraduate-2024)
-- 🏹 I’m interested in '"Web Devlopment"
+- 🏹 I’m into "Frontend Web Devlopment"
 - 📫 How to reach me - Gmail- karanrajmahato@gmail.com
 - 🤝👉linkedln account- https://www.linkedin.com/in/karan-raj-mahato-533650219/
